@@ -1,0 +1,2 @@
+# periodstai
+Belajar bareng bareng
